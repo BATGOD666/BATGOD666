@@ -1,4 +1,4 @@
-#Hello World!
+🙂Hello
 I am BATGOD.I am from China.I am a Minecraft player.
-##contact
+❤联系方式/Contact
 QQ：2069524080
